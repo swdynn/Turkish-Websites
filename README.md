@@ -1,1 +1,1 @@
-this project isnt finished, when i finis it i will upload it again
+this project isnt finished, when i finish it i will upload it again
